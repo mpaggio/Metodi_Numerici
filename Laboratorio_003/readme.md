@@ -1,1 +1,1 @@
-Sei arrivato all'esercizio 28
+Completata l'esercitazione 3 di laboratorio !!!
